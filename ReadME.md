@@ -4,4 +4,3 @@ During my free time away from my screen I enjoy hiking, spending time with famil
 
 Some of my best skills include Swift, Application Structure, UI and team work!
 
-Best way to contact me and to see more skills/experience I have is through my LinkedIn - https://www.linkedin.com/in/nonyeeze/
